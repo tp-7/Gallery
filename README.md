@@ -1,3 +1,6 @@
+<img width="400" height="560" alt="BTCTWOSIXPEPE 400x560" src="https://github.com/user-attachments/assets/eea227b9-4ff5-4f4f-83ae-408563d1069a" />
+
+<img width="48" height="48" alt="BTCTWOSIXPEPE 48x48" src="https://github.com/user-attachments/assets/878edb9e-8182-46e5-9c94-79d9db26976b" />
 <img width="710" height="1089" alt="cardfront v4" src="https://github.com/user-attachments/assets/a10928e5-9a1b-465f-bf8c-9cc88516302f" />
 ![RAYCBOY 48x48](https://user-images.githubusercontent.com/118585642/216810468-f2d41a4b-466c-4973-b7e2-add8c5851028.png)
 ![RAYCBOY 400x560](https://user-images.githubusercontent.com/118585642/216810469-e2c628b6-2b9f-456b-8741-0d7b1f124e21.png)
